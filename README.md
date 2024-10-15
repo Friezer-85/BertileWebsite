@@ -1,4 +1,4 @@
-🌐 • Les fichiers de son site web (accordé avec <a href="https://github.com/dravox-eu">@dravox-eu)
+🌐 • Les fichiers de son site web (fait par @cleeemeeent et non par @sooocallmemoon)
 
 💻 • Son site est accesible principalement sur https://bertille.friezer.eu
 
